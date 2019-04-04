@@ -1,4 +1,6 @@
-**Gina-Rae Proxy**
+# Azura Avatar
+
+Artist **Gina-Rae Proxy**
 
 <https://www.gina-rae-proxy.com/> 
 
